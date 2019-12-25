@@ -1,3 +1,3 @@
-# Spam-Sms
+# Spam-SMS
 Spam-Sms Only For Iranian 
-$ For Get Password go to my Telegram id >> @IRI_CYBERY or cracked !!
+$ Don't try to crack it, but it doesn't require a bit of Python knowledge! 
